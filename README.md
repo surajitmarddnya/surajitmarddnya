@@ -20,8 +20,7 @@
 
 - 📫 How to reach me **surajitmarddnya20@gmail.com**
 
-- 📄 Know about my experiences// [**deepdhabal.wixsite.com**](https://deepdhabal.wixsite.com/deepdhabal)//
-
+- 📄 Know about my experiences visit my git account
 - ⚡ Fun fact **Think it yourself**
 
 <h3 align="left">Connect with me:</h3>
